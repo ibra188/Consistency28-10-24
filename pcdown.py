@@ -1,0 +1,1 @@
+if pc down code on phone .! 
